@@ -1,2 +1,3 @@
-Nama ku deas
-Aku angkatan 24
+Nama ku azka
+Aku angkatan 25
+aku cinta informatika
