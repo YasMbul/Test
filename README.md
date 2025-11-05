@@ -1,2 +1,1 @@
-Nama ku deas
-Aku angkatan 24
+Bukan kah ini MY...
