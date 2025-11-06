@@ -1,1 +1,2 @@
-Nama ku deas
+Nama ku gusde
+aku ganteng
